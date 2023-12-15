@@ -1,0 +1,1 @@
+niezly shake wyszedl
